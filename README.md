@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **amanvrma10@gmail.com**
 
-- ⚡ Best thing about me **I learn very quickly**
+- ⚡ Best thing about me - **I learn very quickly**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
